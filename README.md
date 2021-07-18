@@ -10,4 +10,4 @@
 
 ## Oyun Videosu
 
-https://youtu.be/i3H1Q_N_EGI
+https://youtu.be/ORVHV41Y2LY
